@@ -1,4 +1,4 @@
-👋 Hi, I’m @emmanuelidmdevelopers  
+👋 Hi, I’m @emmanuelabbey  
 - 👀 I’m interested in exploring the world of **Digital Marketing**, **AI**, and **Product Management**.  
 - 🌱 I’m currently learning more about **AI Integration in Marketing**, **Data Analytics**, and **Machine Learning**.  
 - 💞️ I’m looking to collaborate on **AI-driven projects**, **Marketing Automation**, and **Product Development**.  
